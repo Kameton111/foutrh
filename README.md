@@ -1,1 +1,9 @@
-# foutrh
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_XBp7tuj3t2.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_GBbDSPHvkT.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_TlN3SwXGcA.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_7Qnh6duqs5.pngv)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_72pIwpWhgj.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_AXo0gQatWN.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_cJJ7G12BYS.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/POWERPNT_oGUClrkRoM.png)
+![](https://github.com/Kameton111/images/blob/main/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BF%D0%B0%D0%BF%D0%BA%D0%B0/chrome_EpmWVWUsLc.png)
